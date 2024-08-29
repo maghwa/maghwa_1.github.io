@@ -1,1 +1,13 @@
-# maghwa.github.io
+# Artificial Intelligence Student
+
+### Education
+
+
+
+
+### Experience
+
+
+
+
+### Projects
